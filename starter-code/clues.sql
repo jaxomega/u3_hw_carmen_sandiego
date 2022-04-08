@@ -45,4 +45,4 @@
 
 
 
--- She's in ____________________________!
+-- She's in __Santa Monica, California, USA___!
